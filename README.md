@@ -45,8 +45,7 @@ Here are some of the projects I have worked on 👇
 
 ## 📫 Contact
 
-* 📧 Email: [Your Email]
-* 💼 LinkedIn: [Your LinkedIn Profile]
+* 📧 Email: sathvikaravula0312@gmail.com
 
 ---
 
